@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @FabrizzioTroll
+- 👀 I’m interested in dev
+- 🌱 I’m currently learning proggraming
+- 💞️ I’m looking to collaborate on my own corporation
